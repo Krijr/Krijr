@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @Krijr ım watchmen razer is a bitch
-  
+- 👋 Hi, I’m Drtoji lowkey vibecoder and like to learn about AI cus why not and larping cyber security  
   
 
 <!---
